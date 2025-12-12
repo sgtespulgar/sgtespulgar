@@ -1,6 +1,6 @@
 ## Hi I'm Suzerain
 
-I write codes and I think I'm good at it but I need to write more. <br/>
+I write codes and I want to write more. <br/>
 [Instagram](https://www.instagram.com/ohmysiomai/)
 
 
